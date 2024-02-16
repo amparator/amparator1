@@ -1,0 +1,2 @@
+# amparator1
+1
